@@ -1,5 +1,5 @@
 ## Hai im Nyanko![a4cd3a0a](https://github.com/user-attachments/assets/19aa0910-585d-47d2-b752-e2b2e14f4abb)
-##![IMG_6578](https://github.com/user-attachments/assets/f4597b3a-7e9c-4195-ac9a-798ff7d2234b)
+![IMG_6578](https://github.com/user-attachments/assets/f4597b3a-7e9c-4195-ac9a-798ff7d2234b)
 
 Im looking to meet new people, so interactions are welcome ヽ(・ω・)ﾉ DNI: antis, maps![96556ee6](https://github.com/user-attachments/assets/f0cdfcc6-afbd-405c-ac5e-bbf104ac2e13)
 
