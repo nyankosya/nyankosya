@@ -7,7 +7,7 @@ Im looking to meet new people, so interactions are welcome ヽ(・ω・)ﾉ DNI:
 My fandoms: black butler, vocaloids, pantystocking, chiikawa, evrday host club, ourans host club, btd, omori, no.6, summer hikaru died, whitchs heart.
 ![91d166bb](https://github.com/user-attachments/assets/54fc6e9a-01d7-4910-9e23-2c697745b208)
  I also play brawlstars, sekai(jp) and ensemble stars, hsr, cookie run and sometimes genshin.![32257ee5](https://github.com/user-attachments/assets/285005aa-edea-484d-a2d1-ed3ac623577e) 
- I like japanese music especially vkei and jrock![3b4dfeda](https://github.com/user-attachments/assets/a9eb9bd7-5862-41ed-b860-393e8d235b1a)
+ I like japanese music especially jrock![3b4dfeda](https://github.com/user-attachments/assets/a9eb9bd7-5862-41ed-b860-393e8d235b1a)
 
  ![Без названия (29)](https://github.com/user-attachments/assets/fba7f89d-ff8f-42eb-9ba3-29f0f30ad36c)
 
